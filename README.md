@@ -1,4 +1,4 @@
-### Hi there 👋
+
 Olá, eu sou o Aury Programador Oficial
 
 A seguir veja minha  a listagem da minha vida profissional
